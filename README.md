@@ -1,4 +1,4 @@
-### Allow me to introduce myself 👋
+### Allow me to introduce myself
 
 👋🏻 Hello! I am currently pursuing a Bachelor's Degree in Business Information Technology at BCU. I have displayed a lot of interest in the field of IT as demonstrated by my former projects and accomplishments. My motivation and eagerness to learn increases overtime and I am ready to demonstrate the skills I learned in a professional environment.
 
